@@ -1,2 +1,46 @@
 # All-Shell-Shockers-Links
 Not all of these are unblocked, but at least 5 are.
+<br>
+<br>
+algebra.best
+algebra.vip
+biologyclass.club
+deadlyegg.com
+deathegg.world
+eggcombat.com
+egg.dance
+eggfacts.fun
+egghead.institute
+eggisthenewblack.com
+eggsarecool.com
+geometry.best
+geometry.monster
+geometry.pw NEW
+geometry.report
+hardboiled.life
+hardshell.life
+humanorganising.org
+mathdrills.info
+mathfun.rocks
+mathgames.world
+math.international
+mathlete.fun
+mathlete.pro
+overeasy.club
+scrambled.best
+scrambled.tech
+scrambled.today
+scrambled.us
+scrambled.world
+shellshockers.club
+shellshockers.site
+shellshockers.us
+shellshockers.world
+softboiled.club
+violentegg.club
+violentegg.fun
+yolk.best
+yolk.life
+yolk.rocks
+yolk.tech
+zygote.cafe
